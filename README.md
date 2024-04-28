@@ -101,3 +101,15 @@
 官方网站：https://www.pbootcms.com/
 
 Gitee：https://gitee.com/hnaoyun/PbootCMS 
+
+
+
+https://www.pbootcms.com/freesn/
+
+
+授权域名：qikiwi.com
+
+授 权 码：74106AD05A,F1B571835B
+
+有 效 期：永久授权
+
