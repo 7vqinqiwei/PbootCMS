@@ -113,3 +113,10 @@ https://www.pbootcms.com/freesn/
 
 有 效 期：永久授权
 
+
+授权域名：hoowang.com
+
+授 权 码：A15E6D6E78,FCDBA75CC7
+
+有 效 期：永久授权
+
